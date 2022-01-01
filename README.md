@@ -1,1 +1,1 @@
-Hi! I'm Cyril Chin @cwjchin and I'm interested in pursuing a career in web development.
+Hi! Thanks for looking through my page!
